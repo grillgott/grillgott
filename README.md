@@ -1,0 +1,5 @@
+- 👋 Hi, Ich bin der @grillgott
+- 👀 Ich spiele Brawl-Stars und biete euch mit der BrawldWurstBude einen Club zum Mitspielen an
+- 🌱 Wir lernen alle dazu
+- 💞️ immer im Team
+- 📫 schreib' mir auf Discord
